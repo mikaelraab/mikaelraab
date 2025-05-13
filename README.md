@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mikaelraab27
 - 👀 I’m interested in MEN
 - 🌱 I’m currently learning sports betting
-- 💞️ I’m looking to collaborate on INTERCOURSE
+- 💞️ I’m looking to collaborate in INTERCOURSE
 - 📫 How to reach me email/@home
 - 😄 Pronouns: hers
 - ⚡ Fun fact: ain´t got nun miss
