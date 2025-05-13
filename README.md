@@ -2,7 +2,7 @@
 - 👀 I’m interested in men
 - 🌱 I’m currently learning sports betting
 - 💞️ I’m looking to collaborate on intercourse
-- 📫 How to reach me email/@home in woischboch
+- 📫 How to reach me email/@home
 - 😄 Pronouns: hers
 - ⚡ Fun fact: ...
 
